@@ -1,0 +1,2 @@
+# Praktik-anti
+Izdevka gpt
